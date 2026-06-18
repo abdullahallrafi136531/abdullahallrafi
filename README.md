@@ -1,3 +1,3 @@
 # abdullahallrafi
-Hello! 👋 I'm Samiur Rahman
-Man | 🎓 CS Student | 🎯 Future ---
+Hello! 👋 I'm Abdullah All Rafi
+| 🎓 CS Student | 🎯 Future ---
